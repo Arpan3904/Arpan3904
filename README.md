@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **arpanrupareliya238@gmail.com**
 
-- 📄 Know about my experiences [[[https://drive.google.com/file/d/1HqKKrf44JlnrjFqQ0ZNfY3B5olmowza3/view?usp=drivesdk](https://drive.google.com/file/d/1N7hoh-lUbbKEEKap9RG_MXxIgQV_oRtB/view?usp=sharing)]([https://docs.google.com/document/d/1JZhKSteNbgrAisvA4xsOFnE_MQCXKCagbQmtxRLi15U/edit?usp=sharing](https://drive.google.com/file/d/1N7hoh-lUbbKEEKap9RG_MXxIgQV_oRtB/view?usp=sharing))]
+- 📄 Know about my experiences [[[https://drive.google.com/file/d/1HqKKrf44JlnrjFqQ0ZNfY3B5olmowza3/view?usp=drivesdk](https://drive.google.com/file/d/1N7hoh-lUbbKEEKap9RG_MXxIgQV_oRtB/view?usp=sharing)]]
 
 - ⚡ Other Interests : **Classical Music , Piano**
 
